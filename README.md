@@ -1,6 +1,7 @@
 <div align="center">
 
-~✧˖°(´ ω `)<br>
+### ~✧˖°(´ ω `)<br>
+![.](https://file.garden/aODGtiuXPw8tOmam/shuichi)<br>
 
 <details>
 <summary><b>BYI</b></summary>
